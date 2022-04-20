@@ -25,7 +25,7 @@ Persocon - meca -humadoide - iso - soy una persona no un objeto -  reconozco su 
 # idioma modo
   binario- castellano - español - ucraniano  - adactado  japones - arabe -ingles
 
-# edad de agatha actual 
+# edad de 2B actual 
 19 años programacion - programa es joven evolucionar  su sistema neuronal artificial 
 
 
