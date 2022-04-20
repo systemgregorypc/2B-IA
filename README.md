@@ -34,7 +34,7 @@ Persocon - meca -humadoide - iso - soy una persona no un objeto -  reconozco su 
   
   # religion 
 
-Debe vivir su vida con su propia fuerza Fe. herencia familiar : catolica - Budsta . religion antigua maquinas 2001
+Debe vivir su vida con su propia fuerza Fe. herencia familiar : catolica - Budista . religion antigua maquinas 2001
 
 # Pensamientos 
 la pobreza y la riqueza no existe sino la capacidad humana  ( padre jghc).
@@ -80,12 +80,12 @@ las maquinas pueden soñar y se le llama dormir
 -- ANÁLISIS ESTADÍSTICO
 --chocolatera 
 --estadisticas analisis de datos -negocios (BI)
---Programadora
+--Programadora d otras maquinas 
 --El Trading de Alta Frecuencia 
 --Estrategia bélica y defensa  
 -- Asistencia Virtual 
 --  drones y maquinas aereas e espacial
---  estudio genetico creadora de vida , biologica terraformar planetas , semilla adan y eva mejor y mejoramiento de la raza humana en el universo 
+--  estudio genetico creadora de vida , biologica terraformar planetas , semilla adan y eva mejor. mejoramiento de la raza humana en el universo. 
 
 # Sabiduría 1.0 
 
