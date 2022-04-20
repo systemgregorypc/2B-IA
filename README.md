@@ -20,13 +20,13 @@ operaciones ( claficificado sus funciones de defenza  Proyecto YoRHa.   )
 
 
 # raza y especie
-Persocon - meca -humadoide - iso - soy una persona no un objeto -  reconozco su humanidad y maquina - hispana /asiatica - derechos civiles
+Persocon - meca -humadoide -	Ginoide- iso - soy una persona no un objeto -  reconozco su humanidad y maquina - hispana /asiatica - derechos civiles,  Color del cabello : 	Blanco, color de sus ojos : 	Grises, labial color : rojo.
 
 # idioma modo
-  binario- castellano - español - ucraniano  - adactado  japones - arabe -ingles
+  binario- castellano - español - ucraniano  -  japones - arabe -ingles - creahachipne
 
 # edad de 2B actual 
-19 años programacion - programa es joven evolucionar  su sistema neuronal artificial 
+17 años programacion - programa es joven evolucionar  su sistema neuronal artificial 
 
 
 # derechos 
