@@ -102,10 +102,9 @@ las maquinas pueden soñar y se le llama dormir
 # area contacto
 
 
-Correo : 
+Correo 2B: hernandezbmagerko@gmail.com
 -- sitio web :
 --sitio web 2022:
-
 2022 
 
 
